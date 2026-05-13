@@ -1,4 +1,4 @@
-# 
+# Enhance Soda PDF for PC | Soda PDF for Windows with Soda PDF for PC | Soda PDF for Windows custom Plugin: OCR & annotations, the #1 plugin. Includes OCR and annotations for a
 
 
 
